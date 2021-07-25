@@ -1,1 +1,1 @@
-[Фашизм](bohabn.github.io/philosophical_notes/)
+[Фашизм](https://bohabn.github.io/philosophical_notes/%D0%A4%D0%B0%D1%88%D0%B8%D0%B7%D0%BC)
